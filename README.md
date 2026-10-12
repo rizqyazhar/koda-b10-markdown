@@ -6,6 +6,8 @@ Daftar _NXGN_ tahunan kembali hadir untuk tahun 2026, di mana **GOAL** menyusun 
 
 Daftar _NXGN_ 2026 kategori putra benar-benar bersifat global, menampilkan para pemain senior internasional yang sudah mapan, para pemenang gelar, serta nama-nama yang diprediksi akan bersinar di ajang-ajang bergengsi selama beberapa dekade mendatang.
 
+Istilah wonderkid sebetulnya nggak cuma terbatas di dunia sepakbola, lho. Ini bisa dipake di segala bidang, kayak olahraga, musik, seni, ilmu pengetahuan, pokoknya apa aja. Intinya, wonderkid itu orang yang punya talenta luar biasa dan biasanya masih muda banget, kayak remaja atau bahkan lebih muda lagi.
+
 Jadi, apa sih rahasia yang membuat _wonderkid_ sepak bola jadi istimewa? Berikut kriteria pemain muda yang dikategorikan pemain muda:
 
 - Kepercayaan diri yang luar biasa
